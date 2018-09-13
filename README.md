@@ -9,7 +9,7 @@
 - и многое другое
 
 ![](https://img.hotels24.ua/photos/ria/new_images/1123/112316/11231629/11231629m.jpg)
-![](http://data31.i.gallery.ru/albums/gallery/329829-e01d0-105463194-200-ue41d8.jpg)
+![](https://vishivashka.ru/wp-content/uploads/den_buhgaltera_3-300x225.jpg)
 
 **№**|**Описание**|**Ссылка на работу**
 ---|:---:|---:
