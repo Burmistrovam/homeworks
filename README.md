@@ -8,8 +8,8 @@
 + ходить в походы 
 - и многое другое
 
-![](https://wallbox.ru/resize/1680x1050/wallpapers/main2/201716/149241522858f472fc771366.51671582.jpg)
-![](https://lovelypuppets.ru/wp-content/uploads/2017/09/db0a118c59c43ebe6c42efdfd66u-768x768.jpg)
+![](https://img.hotels24.ua/photos/ria/new_images/1123/112316/11231629/11231629m.jpg)
+![](http://data31.i.gallery.ru/albums/gallery/329829-e01d0-105463194-200-ue41d8.jpg)
 
 **№**|**Описание**|**Ссылка на работу**
 ---|:---:|---:
