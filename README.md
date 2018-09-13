@@ -13,7 +13,7 @@
 
 **№**|**Описание**|**Ссылка на работу**
 ---|:---:|---:
-**1**||
+**1**|Readme|[*Первое дз*](https://github.com/Burmistrovam/homeworks/blob/master/README.md)
 **2**||
 **3**||
 **4**||
